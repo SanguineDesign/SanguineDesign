@@ -1,4 +1,4 @@
-### Hi there 👋
+### I don't know what I'm doing, but I'm pretty sure it's gonna be cool.
 
 <!--
 **SanguineDesign/SanguineDesign** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
